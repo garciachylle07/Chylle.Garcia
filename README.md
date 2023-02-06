@@ -5,6 +5,6 @@
 - [Telegram - @Garcia_Chylle07](https://web.telegram.org/k/)
 
 # FOR CAROLINE
--__bold__HAPPY BIRTHDAY, LAYN!
+-HAPPY BIRTHDAY, LAYN!
 -[just follow this link](https://trinket.io/turtle)
--Copy the text inside
+-[Copy the text inside](https://drive.google.com/drive/folders/1DmtSdt8pFYIj8buYe5ccALI5B7IIshIr?usp=share_link)
