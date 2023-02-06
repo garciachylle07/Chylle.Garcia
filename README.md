@@ -6,5 +6,5 @@
 
 # FOR CAROLINE
 -HAPPY BIRTHDAY, LAYN!
--[just follow this link](https://trinket.io/turtle)
--[Copy the text inside](https://drive.google.com/drive/folders/1DmtSdt8pFYIj8buYe5ccALI5B7IIshIr?usp=share_link)
+- [just follow this link](https://trinket.io/turtle)
+- [Copy the text inside](https://drive.google.com/drive/folders/1DmtSdt8pFYIj8buYe5ccALI5B7IIshIr?usp=share_link)
